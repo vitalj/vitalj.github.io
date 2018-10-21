@@ -1,1 +1,0 @@
-# vitalj.github.io
